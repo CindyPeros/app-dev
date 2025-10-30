@@ -1,6 +1,7 @@
 ## My favoprite series/movies : Alchemy of Souls
 
 **Genre:** Fantasy, Romance, Comedy, and Action
+
 **Main Characters:**
 - Mu Doek
 - Jang Uk
